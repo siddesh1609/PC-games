@@ -5,3 +5,8 @@ CS GO
 GTA 
 Need For Speed 
 PUBG
+
+
+DOTA 
+DOTA-2
+Fortnite
